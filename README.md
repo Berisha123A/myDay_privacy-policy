@@ -1,0 +1,1 @@
+# myDay_privacy-policy
